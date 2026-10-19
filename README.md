@@ -1,0 +1,1 @@
+# KageCommerce-privacy
